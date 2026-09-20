@@ -7,15 +7,13 @@
 
 The Incident
 
-The Soul Stone was returned to Vormir.
+The Soul Stone was supposed to return to Vormir.
 
-The return was recorded.
-
-But something happened after that.
+But the return was never recorded.
 
 The final record disappeared.
 
-No one knows who removed it, or why.
+No one knows who used it.
 
 Only fragments remain.
 
