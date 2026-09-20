@@ -1,9 +1,9 @@
-THE SOUL STONE — 616
+**THE SOUL STONE — 616**
 
-Universe: Earth-616
-Object: Soul Stone
-Last Known Location: Vormir
-Status: UNKNOWN
+- Universe: Earth-616
+- Object: Soul Stone
+- Last Known Location: Vormir
+- Status: UNKNOWN
 
 The Incident
 
