@@ -16,5 +16,3 @@ The final record disappeared.
 No one knows who used it.
 
 Only fragments remain.
-
-Remember Sacrifice is the key to all of the questions.
