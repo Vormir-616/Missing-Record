@@ -17,6 +17,4 @@ No one knows who used it.
 
 Only fragments remain.
 
-Remember Soul Stone demands a prize.
-
-Soul for a Soul.
+Remember Sacrifice is the key to all of the questions.
